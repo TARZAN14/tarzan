@@ -1,2 +1,0 @@
-# tarzan
-NACHALO
